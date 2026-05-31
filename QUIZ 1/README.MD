@@ -1,1 +1,1 @@
-
+## NO QUIZ 1 IN THIS COURSE
